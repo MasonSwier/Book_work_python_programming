@@ -1,1 +1,0 @@
-I read this years ago and just decided to skip ahead to the answers. Shame on me.
